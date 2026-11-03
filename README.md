@@ -1,0 +1,1 @@
+# proj-mecanica-SA
